@@ -1,2 +1,2 @@
-Topic 6 is now the system of record.
+Topic 7 is now the system of record.
 
